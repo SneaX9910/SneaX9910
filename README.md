@@ -2,11 +2,11 @@
 - 👀 I am interested in programming
 - 🤖 Feel free to join my Discord server <https://discord.gg/FcDAnraYWT>
 - 📫 How to reach me
-- <Discord [SneaX9910]>
+- Discord SneaX9910
 - 📱Social Media:
-- <Twitch [ https://m.twitch.tv/SneaX9910?desktop-redirect=true ]
-- <Tiktok [ https://www.tiktok.com/@felix_dft ]
-- <Youtube [ https://youtube.com/@SneaX9911?si=QKx_YeUVVQE3sbft ]
-- <Instagram [ https://www.instagram.com/felix_dft_/?igsh=MXRtOTlwa3NyY2hmeA%3D%3D&utm_source=qr ]
+- Twitch [ https://m.twitch.tv/SneaX9910?desktop-redirect=true
+- Tiktok [ https://www.tiktok.com/@felix_dft
+- Youtube [ https://youtube.com/@SneaX9911?si=QKx_YeUVVQE3sbft
+- Instagram [ https://www.instagram.com/felix_dft_/?igsh=MXRtOTlwa3NyY2hmeA%3D%3D&utm_source=qr
 
 - Feel free to take a look at all the links and follow them everywhere ☺️
